@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with all of you
 - 📫 How to reach me deepikaverma0403@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: 
+- ⚡ Fun fact: when we meet you will know
 
 <!---
 Deep-i-ka/Deep-i-ka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
